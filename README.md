@@ -54,9 +54,9 @@ More structured projects are continuously being developed and refined.
 
 ## 📫 Contact
 
-- 📧 Email: your-email@gmail.com  
-- 🔗 LinkedIn: https://linkedin.com/in/your-link  
-- 🐙 GitHub: https://github.com/your-username  
+- 📧 Email: radhajaiswal9252@gmail.com  
+- 🔗 LinkedIn: [https://linkedin.com/in/your-link  ](https://www.linkedin.com/in/radhika-jaiswal-22143b330/)
+- 🐙 GitHub: [https://github.com/your-username ](https://github.com/Radhika-console) 
 
 ---
 
